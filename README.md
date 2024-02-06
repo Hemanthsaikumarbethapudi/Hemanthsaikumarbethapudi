@@ -14,6 +14,4 @@ I'm Passionate Developer Solving real world problems using technology.
 
 📫 How to reach me: bhemanthsaikumar04@gmail.com
 
-📄 My Resume: https://bit.ly/hemanthsai_resume
-
 ⚡ Fun fact: I love Travelling.
